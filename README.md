@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi there 👋 Ask me about why I need your phone number
 
 <!--
 **jimleepro1-cell/jimleepro1-cell** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
